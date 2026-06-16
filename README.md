@@ -1,2 +1,1 @@
-# ULT.LUCKYSTUDENT
-wip ok?
+![img](https://files.catbox.moe/hktm0u.jpg)
